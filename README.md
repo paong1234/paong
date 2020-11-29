@@ -1,2 +1,0 @@
-# paong
-Jangan lupa subscribe
